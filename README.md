@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NuttePusser
-- 👀 I’m interested in crocheting and music 🎶 
+- 👀 I’m interested in crocheting and music 🎶 and walking 🚶because I can't run 🏃
 - 🌱 I’m currently learning us english 
 - 💞️ I’m looking to collaborate on crochet things and music numbers we can hear together maybe some new music for me and for you... 🎶 👂. And speaking about the Bibel. 
 - 📫 How to reach me u_buus@outlook.dk 
@@ -9,8 +9,8 @@ NuttePusser/NuttePusser is a ✨ special ✨ repository because its `README.md` 
 You can click the Preview link to take a look at your changes.
 
 --->
-I AM a Jehovas witthnerses.I dont now about I wrihte this right.
-I am not as good as I want to be to speak or wrihte us-english yet.
+I AM a 🫂 Jehovas witthnerses.I dont now about I wrihte this right.
+I am not as good as I want to be to 🗣️ speak or ✍️ wrihte us-english yet.
 I love to write whit pepol from the hole world most from USA and England because of the laungwich.
 I Mean. From places were they writhe and speak english.
 
